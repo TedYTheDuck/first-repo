@@ -1,0 +1,1 @@
+idk this was just some random "first" project to learn coding more
